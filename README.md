@@ -1,4 +1,4 @@
-### Hey, I'm @Tjuli-01 
+### Hey, I'm @tjuli-dev
 - Coding💻
 - Gaming🎮
 - Sleeping💤
